@@ -1,1 +1,1 @@
-# curriculoaaaaaaaaaaaaaaaaaz-
+# curriculo
